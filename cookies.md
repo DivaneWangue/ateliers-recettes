@@ -1,0 +1,6 @@
+- 200g de farine 
+- 100g de sucre 
+- 100g de beurre 
+- 1 ouf 
+- 1 sachet de levure chimique 
+- Ajouter une pinc‚e de sel 
