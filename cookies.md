@@ -3,3 +3,4 @@
 - 100g de beurre 
 - 1 ouf 
 - 1 sachet de levure chimique 
+- Ajouter une pinc‚e de sel 
